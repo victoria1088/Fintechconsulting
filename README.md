@@ -1,3 +1,3 @@
 ![Screenshot](Blue Accounting Business_Advertising Website.png)
-![](Blue Accounting Business_Advertising Website.png =250x250)
+![](Blue Accounting Business_Advertising Website.png =400x400)
 
