@@ -1,2 +1,2 @@
-![Screenshot](1565959251907.jpg)
+![Screenshot](Blue Accounting Business_Advertising Website.png)
 
