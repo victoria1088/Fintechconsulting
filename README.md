@@ -1,2 +1,2 @@
 ![Screenshot](Blue Accounting Business_Advertising Website.png)
-<img src="Blue Accounting Business_Advertising Website.png" width="5000">
+<img src="Blue Accounting Business_Advertising Website.png" width="50000000000">
